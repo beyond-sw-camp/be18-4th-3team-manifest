@@ -1,1 +1,0 @@
-# be18-4th-3team-manifest
